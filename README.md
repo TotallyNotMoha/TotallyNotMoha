@@ -1,6 +1,6 @@
 👋 Hi, I’m Moha
 
-👀 I’m interested in Sushi and Computer/Mobile games!
+👀 I’m interested in Food and Computer/Mobile games!
 
 🌱 I’m currently learning on middle school
 
